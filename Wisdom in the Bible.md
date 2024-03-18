@@ -1,0 +1,3 @@
+# Wisdom in the Bible
+
+Wisdom is not something that is based on how well you reason through something, but the idea of simply knowledge. Wisdom is sharing and spreading the knowledge and information to others. Even though Solomon isn't seen as particularily clever, he is seen as wise. Wisdom can be seen as a moral force and more so of "common sense." Like drinking water when you are thirsty. Although "common sense" can mean many things to many cultures, here, wisdom is the natural order of things. This also relates to how people believe in God because of that idea of perfect design. Where humans are engrained with the ability to decipher right and wrong through morality rather than rationality. 
